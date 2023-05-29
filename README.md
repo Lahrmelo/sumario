@@ -1,2 +1,0 @@
-# sumario
-atividade de nivelamento
